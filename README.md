@@ -45,3 +45,5 @@ Arah
 Rave
 Cancejo
 Prince
+
+Change Change Gumana kana pls
